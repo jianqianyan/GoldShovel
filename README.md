@@ -8,7 +8,7 @@
 
 ![](C:\Users\蔡佳乐\AppData\Roaming\Typora\typora-user-images\image-20220110163626063.png)
 
-![image-20220110163629569](C:\Users\蔡佳乐\AppData\Roaming\Typora\typora-user-images\image-20220110163629569.png)
+![image-20220110163629569](https://github.com/jianqianyan/image/blob/main/image-20220110163626063.png)
 
 ![image-20220110163654123](C:\Users\蔡佳乐\AppData\Roaming\Typora\typora-user-images\image-20220110163654123.png)
 
